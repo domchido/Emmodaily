@@ -1,6 +1,6 @@
 Tips for keeping soccer players in shape during the summer
 ==========================================================
-After a long season in which most teams play between 30 and 40 games per year comes the holiday period, this period is called舠off-season舡, is a necessary period for both players and the club, but produces physiological decline in the players who later in the return may affect us.
+After a long season in which most teams play between 30 and 40 games per year comes the holiday period, this period is called “off-season”, is a necessary period for both players and the club, but produces physiological decline in the players who later in the return may affect us.
 
 This period usually consists of between 4 and 6 weeks normally, and it is very important both to rest and disconnect from football activity, how to maintain small routines, which do not cost much time or sacrifice to the players to return to the preseason in an optimal state.
 
@@ -12,7 +12,7 @@ Therefore, as a summary `bet9ja <https://bet9javip.com/>`_ vip has provided the 
 * Another aspect to emphasize in this period is the attempt of maintenance of the obtained physical capacities, but a better adaptation to the training of the preseason.
 * Finally, it is important to assess this period, since a bad behavior during this transition can generate that the pre-season loads, which are generally higher, cause us injuries.
 
-After all, it舗s a period that舗s going to give us better performance during the competitive period.
+After all, it’s a period that’s going to give us better performance during the competitive period.
 
 **The aspects that we must take into account when evaluating this period and the work that we are going to develop for our footballers are:**
 
@@ -46,5 +46,5 @@ Regarding the core work section: the type of exercise we find are: front and sid
 
 In terms of flexibility and foam work is important to focus on muscles with greater propensity to injury, such as the triceps sural, hamstrings, psoas iliaco, adductors or buttocks.
 
-With respect to strength work, it would be the anterior muscles together with the anterior rectum, and quadriceps the most worked. Performing, in general, multi-articular exercises and to be able to be with the greatest transfer to what may occur after the competition as accelerations, deceleration舗s, imbalances …
+With respect to strength work, it would be the anterior muscles together with the anterior rectum, and quadriceps the most worked. Performing, in general, multi-articular exercises and to be able to be with the greatest transfer to what may occur after the competition as accelerations, deceleration’s, imbalances …
 
